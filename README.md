@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @IM-N
+- 👀 I’m interested in Portal 2
+- 🌱 I’m currently learning in the 4th grade
+- 💞️ I’m looking to collaborate on not yet in what
+- 📫 How to reach me in telegram (@EEEEEENNNNNN)
